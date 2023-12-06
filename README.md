@@ -97,7 +97,7 @@ We would like to thank women techsters Tech4dev for their generous support and g
 
 - Juliet Delali Kutani​
 
-- Alao Zahidat Alake​
+- Alao Zahidat Alake​ https://github.com/Ayomii1
 
 
 
